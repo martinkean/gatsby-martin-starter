@@ -13,6 +13,8 @@ tags:
 Our community rooms are open twice a week for anyone to pop in have a hot drink and enjoy the rooms.\
 **OPEN** **Tuesdays 10am – 12pm midday**
 
+![Our community rooms](/img/screen-shot-2021-03-02-at-8.42.38-am.png "Our community rooms")
+
 ### Book our rooms for your community group:
 
 The Network offers a Meeting Room and the larger Community Room to hire, FOR FREE to community groups and non-profit-making ventures.
